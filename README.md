@@ -1,1 +1,1 @@
-![Дизайн без названия](https://user-images.githubusercontent.com/122017847/212476716-0c20f18f-d2e4-49b3-87ec-321ee3597e2b.png)
+![Дизайн без названия](https://user-images.githubusercontent.com/122017847/212476803-3dc36cb6-6152-45ae-83f8-47a166f5bdae.png)
